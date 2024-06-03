@@ -1,1 +1,0 @@
-# Maraha-All-In-one-Platform-for-Educational-Institution
